@@ -27,3 +27,11 @@ Toplanan veriler yalnızca şu amaçlarla kullanılır:
 ## İletişim
 
 Sorularınız için: tunahanakkaya@gmail.com
+
+## Hesap Silme
+
+Hesabınızın ve ilgili tüm verilerinizin silinmesini talep etmek için aşağıdaki e-posta adresine yazın:
+
+**tunahanakkaya@gmail.com**
+
+Talebiniz en geç 30 gün içinde işleme alınır. Silinen veriler geri getirilemez.
